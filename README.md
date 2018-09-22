@@ -7,8 +7,8 @@ There are three things I loved--the sun, the moon and you. The sun is for the da
 Hope we can hold each other's hands and continue forever, we ever struggled and fought though.
 
 
-[Click Here, my babe]( https://uclshin.github.io/halfyear/iloveu.html) 
+[Click Here, my babe](https://uclshin.github.io/halfyear/iloveu.html) 
 
-Hope this can make you happy. 
+Hope you enjoy this
 Love you 
 
